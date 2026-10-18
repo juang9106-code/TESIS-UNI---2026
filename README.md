@@ -1,0 +1,1 @@
+[GUÍA Nº1 METODOLOGÍA PLAN DE TESIS - RR 3144-2023.pdf](https://github.com/user-attachments/files/33634337/GUIA.N.1.METODOLOGIA.PLAN.DE.TESIS.-.RR.3144-2023.pdf)
